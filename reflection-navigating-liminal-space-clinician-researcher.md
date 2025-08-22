@@ -1,4 +1,6 @@
-# Reflection - Navigating Liminal Space as a Clinician-Researcher
+# Navigating Liminal Space as a Clinician-Researcher
+
+**Vivian Pan** • August 22, 2025
 
 As I prepare for my PhD written exams and reflect on my journey as a genetic counselor pursuing a PhD in health informatics, I find myself in a liminal space—that threshold between distinct states of being where I am neither here nor there, floating in a disorienting yet infinitely exciting space of possibility. A liminal space, derived from the Latin "limen" meaning threshold, describes that metaphysical place between two distinct points where the future feels endless because it isn't firm yet. This fluid, mixed space feels simultaneously uncomfortable and thrilling.
 
